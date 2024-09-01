@@ -5,7 +5,6 @@
 ### 1.保研
 
 1.专业课（自控等等）
-[个人材料.pdf](https://github.com/user-attachments/files/16827548/default.pdf)
 
 2.推荐信模板
 
